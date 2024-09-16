@@ -50,8 +50,7 @@ The BYTE-MD-LITE is released.
 Enjoy the diverse features of the BYTE-MD-LITE  to enhance your conversations and make your WhatsApp experience more interesting!
 
 ## Developer:
-- [**Hamza**](https://wa.me/923072380380)
-
+- [**Hamza**](https://wa.me/930783372128
 **Thanks to:**
 ## Allah
 
